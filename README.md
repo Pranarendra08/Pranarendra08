@@ -1,5 +1,5 @@
 ### Hi there 👋
-Perkenalkan nama saya **Pranarendra Dwikurnia**.\
+Perkenalkan nama saya **Pranarendra Dwikurnia**.
 
 <p align="left">
 <a href="https://github.com/Pranarendra08">
